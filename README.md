@@ -1,1 +1,2 @@
 Victoria Patterson
+pattersv@oregonstate.edu
